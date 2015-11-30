@@ -32,4 +32,4 @@ This is my least favourite out of the 6. I tried to play around with the "Text o
 ![](images/Can you hear me now final.png)
 ![](images/Can you hear me now final 2.png)
 
-As you can see they both look pretty much the same with only minor adjustments. I chose this style as I did a little research on the original tweet and the publisher. I found out the Demi Snowden had committed treason and was now in Moscow. He released information to the public about encryption so I decided to make a composition inspired by the appearance of encrypted text.
+As you can see they both look pretty much the same with only minor adjustments. I chose this style as I did a little research on the original tweet and the publisher. I found out the Demi Snowden had committed treason forcing him to flee to Moscow where he now resides. Considering the information that he released was about encryption I decided to make a composition inspired by the appearance of encrypted text.
